@@ -1,1 +1,1 @@
-Alternative Icons are created by Matthias Kubisch
+Alternative icon set created by Matthias Kubisch
